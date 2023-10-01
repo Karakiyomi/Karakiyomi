@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Karakiyomi
 - 👀 I’m interested in https://www.rainmaker.in.th/crybaby-molly-exhibition/
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaboratively on 
 - 📫 How to reach me #https://www.tiktok.com/@sukhuman_kara?_t=8eTL813Drs2&_r=1
 
 <!---
